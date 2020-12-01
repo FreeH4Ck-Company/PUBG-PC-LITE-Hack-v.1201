@@ -1,2 +1,0 @@
-# PUBG-PC-LITE-Hack-v.1201
-PUBG-PC-LITE-Hack-v.1201
